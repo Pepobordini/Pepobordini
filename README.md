@@ -5,3 +5,4 @@
 🧮 - apaixonado por matemática 
 🏐 - amo o esporte vôlei
 🏛 - pretendo fazer faculdade de arquitetura 
+🧙‍♂️ - apaixonado por Harry Potter 
